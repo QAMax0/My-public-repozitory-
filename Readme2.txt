@@ -1,0 +1,1 @@
+Текст: Hi, my name is Maxim.
